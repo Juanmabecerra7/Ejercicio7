@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Juanmabecerra7
-- 👀 I’m interested in guys
+- 👀 I’m interested in kids
 - 🌱 I’m currently learning photography
 - 💞️ I’m looking to collaborate on Flaco Schiavi
 - 📫 How to reach me in the wood
